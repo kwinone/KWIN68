@@ -1,6 +1,6 @@
 # KWIN68
 
-[https://kwin.one/](KWIN) - Trang chủ tải game kwin68 chính thức. Cổng game bài đổi thưởng uy tín đang khuyến mãi nạp đầu 80% trong hôm nay.
+[KWIN]([KWIN](https://kwin.one/)) - Trang chủ tải game kwin68 chính thức. Cổng game bài đổi thưởng uy tín đang khuyến mãi nạp đầu 80% trong hôm nay.
 
 - Địa chỉ: 68 Ng. 18 P. Pháo Đài Láng, Láng Thượng, cầu giấy, Hà Nội, Việt Nam
 
